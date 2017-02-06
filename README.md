@@ -1,7 +1,5 @@
-**<p align="center">
-Ladies Almanack First Project
-</p>**
+# Ladies Almanack First Project
 
-<p align="center">
 By: Hardwynn Tunacao and Taylor Rose
-</p>
+
+
