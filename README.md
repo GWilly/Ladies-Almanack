@@ -9,3 +9,14 @@
 ## Analyzation
 
 ## Sources
+
+//Planning
+
+Form 
+-seperate different units of text
+-include  images that support context
+
+Content
+-opening context
+-ladder of specificity
+-give just enough information
