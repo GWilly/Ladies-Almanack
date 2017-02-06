@@ -1,5 +1,5 @@
 <p align="center">
-/insert title name/
+Ladies Almanack First Project
 </p>
 
 <p align="center">
