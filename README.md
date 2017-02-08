@@ -2,7 +2,6 @@
 
 ### By: Hardwynn Tunacao and Taylor Rose
 
----------------------------------------------------------------------------------------------------
 
 ![Alt Text](https://2982-presscdn-29-70-pagely.netdna-ssl.com/wp-content/uploads/2015/06/britta-community-lesbian.gif)
 
