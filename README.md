@@ -13,7 +13,7 @@
 
 [Classical Lesbianism](https://gwilly.github.io/Ladies-Almanack/GenderRolesModern)
 
-[Modern Lesbianism](https://gwilly.github.io/Ladies-Almanack/LesbianismModern)
+[Modern Gender Roles](https://gwilly.github.io/Ladies-Almanack/LesbianismModern)
 
 [Modern Lesbianism](https://gwilly.github.io/Ladies-Almanack/LesbianismClassic)
 
