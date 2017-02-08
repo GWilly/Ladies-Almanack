@@ -2,13 +2,15 @@
 
 ### By: Hardwynn Tunacao and Taylor Rose
 
-## Project Detail
+## Table of Contents
 
-## Chapter
+[Classical Gender Roles](https://gwilly.github.io/Ladies-Almanack/GenderRolesClassic)
 
-## Analyzation
+[Classical Lesbianism](https://gwilly.github.io/Ladies-Almanack/GenderRolesModern)
 
-## Sources
+[Modern Lesbianism](https://gwilly.github.io/Ladies-Almanack/LesbianismModern)
+
+[Modern Lesbianism](https://gwilly.github.io/Ladies-Almanack/LesbianismClassic)
 
 [[ Planning
 
