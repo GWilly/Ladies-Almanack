@@ -2,6 +2,12 @@
 
 ### By: Hardwynn Tunacao and Taylor Rose
 
+---------------------------------------------------------------------------------------------------
+
+
+
+---------------------------------------------------------------------------------------------------
+
 ## Table of Contents
 
 [Classical Gender Roles](https://gwilly.github.io/Ladies-Almanack/GenderRolesClassic)
