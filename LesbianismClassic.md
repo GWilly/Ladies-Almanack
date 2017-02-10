@@ -11,5 +11,4 @@
 9. May pg 32, passage on historical lesbianism/mythological
 10. May pg 34 “...look of the Pope, which she carried about with her… waned a little, and there was seen to shine forth the cunning of a Monk in Holy Orders, in some Country too old for Tradition… I was a Pioneer and a Menace”
 
-
 [Home](https://gwilly.github.io/Ladies-Almanack)
