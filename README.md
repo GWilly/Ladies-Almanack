@@ -18,4 +18,5 @@
 
 [Modern Lesbianism](https://gwilly.github.io/Ladies-Almanack/LesbianismClassic)
 
+[Video](https://gwilly.github.io/Ladies-Almanack/Video)
 
