@@ -1,6 +1,10 @@
 # Classical Lesbianism
 
+## Internal Evidence
+
 Prevalently shown in the chapter of January as well as scattered throughout the text, lesbianism during this time period was a taboo. One example of this is in May when Patience says, “...what can you women see in each other? Where is the Parting of the Ways and the Horseman that hunts?”. This was a common reaction to this female-female relationship. (Barnes 31)  First, we must analyze the speaker of this quote in order to place it into context.  Since the speaker is Patience Scalpel, we know from the text that she is a fervent traditionalist as shown by her confusion by the two women who were gamboling in January. We can also assume that Patience Scalpel is only shown throughout the text to explain what the traditionalist viewpoint would say, and contrast it to the viewpoints of the pro-lesbian Dame Musset.  However, this is also applicable to the public opinion of lesbianism that was maybe perceived at the time. We believe that when Patience is referring to the parting of ways and the horseman, Barnes was trying to convey that there is a split occurring from the traditional views of heterosexual relationships to the new more modern views that others have, such as characters like Dame Musset. O
+
+## External Evidence
 
 [Home](https://gwilly.github.io/Ladies-Almanack)
 
