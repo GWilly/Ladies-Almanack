@@ -10,6 +10,8 @@
 
 ## Table of Contents
 
+<p align="center">
+
 [Classical Gender Roles](https://gwilly.github.io/Ladies-Almanack/GenderRolesClassic)
 
 [Classical Lesbianism](https://gwilly.github.io/Ladies-Almanack/GenderRolesModern)
@@ -20,3 +22,4 @@
 
 [Video](https://gwilly.github.io/Ladies-Almanack/Video)
 
+</p>
