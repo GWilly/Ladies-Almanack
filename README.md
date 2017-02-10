@@ -14,9 +14,9 @@ On this site we will be discussing Djuna Barnes in her work titled Ladies Almana
 
 [Classical Gender Roles](https://gwilly.github.io/Ladies-Almanack/GenderRolesClassic)
 
-[Classical Lesbianism](https://gwilly.github.io/Ladies-Almanack/GenderRolesClassic)
+[Classical Lesbianism](https://gwilly.github.io/Ladies-Almanack/LesbianismClassic)
 
-[Modern Gender Roles](https://gwilly.github.io/Ladies-Almanack/LesbianismModern)
+[Modern Gender Roles](https://gwilly.github.io/Ladies-Almanack/GenderRolesModern)
 
 [Modern Lesbianism](https://gwilly.github.io/Ladies-Almanack/LesbianismModern)
 
