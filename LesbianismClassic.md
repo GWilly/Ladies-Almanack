@@ -8,5 +8,9 @@ Our second example of this is in March when Patience says, “...sinning in a do
 
 ## External Evidence
 
+Vol. 1: Lesbian Histories and Cultures: An Encyclopedia. Ed. Bonnie Zimmerman. 862 pp. HQ75.5.L4395 306.76′63′03.
+
+In this source it states that the study of homosexuality began in 1869. While this is before the time that Ladies Almanack was written, it can be seen that not much information had been gathered about the subject. Since we know that Barnes was born in 1892, she was growing up during the early stages of these studies. It likely had an impact on her writing and led to the creation of the Ladies Almanack. Early generations of sexologists were several individuals who themselves identified as homosexuals and directed their scholarly activity toward both the elimination of prejudice and discrimination and the demand for equal human rights. This is something to consider since they themselves were the one who were gathering the data. A period between roughly 1900 and 1930 was one of considerable intellectual activity in the areas of sexology and literature concerning lesbianism. Since we know that the text was published in 1928 it probably stirred up a lot of controversy concerning the roles of men and women. 
+
 [Home](https://gwilly.github.io/Ladies-Almanack)
 
