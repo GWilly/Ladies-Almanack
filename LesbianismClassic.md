@@ -1,6 +1,4 @@
-# Classical Lesbianism
-
-## Internal Evidence
+# Quote 2
 
 “...sinning in a double and similar Sin; rising unprovided for by Church or Certificate…” (Barnes 19). 
 
