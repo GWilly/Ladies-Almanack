@@ -12,13 +12,13 @@ On this site we will be discussing Djuna Barnes in her work titled Ladies Almana
 
 ## Table of Contents
 
-[Quote 1](https://gwilly.github.io/Ladies-Almanack/GenderRolesClassic)
+[Quote 1](https://gwilly.github.io/Ladies-Almanack/Quote 1)
 
-[Quote 2](https://gwilly.github.io/Ladies-Almanack/LesbianismClassic)
+[Quote 2](https://gwilly.github.io/Ladies-Almanack/Quote 2)
 
-[Quote 3](https://gwilly.github.io/Ladies-Almanack/GenderRolesModern)
+[Quote 3](https://gwilly.github.io/Ladies-Almanack/Quote 3)
 
-[Quote 4](https://gwilly.github.io/Ladies-Almanack/LesbianismModern)
+[Quote 4](https://gwilly.github.io/Ladies-Almanack/Quote 4)
 
 [Video & Conclusion](https://gwilly.github.io/Ladies-Almanack/Video)
 
