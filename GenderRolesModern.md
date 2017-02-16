@@ -1,6 +1,4 @@
-# Quote 3 
-
-May pg. 35 “I yearn with any very great Vastness for the early eighties; then Girls were as mute as a Sampler…”
+# “I yearn with any very great Vastness for the early eighties; then Girls were as mute as a Sampler…” (May 35)
 
 This quote is spoken by Dame Musset to Nip, after being enquired to recall her situation back in the days especially during her experiences with lesbians growing up.  Analyzation of this quote must first begin with the tone that Dame Musset is trying to convey.  She apparently “yearns with any very great Vastness for the early eighties” explaining her want to traverse backwards in time and experience or remember the time back then.  Yearning is an intense variation of want, so to say that she yearns for the early eighties, shows that she has a great longing for that time. In addition to this, her feelings are further intensified by her use of any, very, and great.  This structure may have been common during this time, however it could also be seen as a greater magnitude of yearning that she feels.  Any may be included to show that every inch of her body or “I”, is uncontrollably want to go back during this time.  The words very and great further adds to this nostalgic feeling that she must be experiencing.  Another important aspect of this quote is the “Vastness” that she yearns for.  Vastness’s literal translation is a very great extent or size. So to add it all together the words any, very, great, and Vastness only serve to multiply her yearning for the early eighties. 
   
