@@ -6,8 +6,12 @@
 4. Nordquist, Joan, comp. Queer Theory: A Bibliography. Santa Cruz: Reference and Research Services, 1997. 64 pp. Social Theory: A Bibliog. Ser. 48. Z7164.H74 N67 [HQ76.25] 016.30676′6.
 5. LGBT Life with Full Text. EBSCOhost. EBSCO, 2013. 28 Jan. 2013. <http://www.ebscohost.com>.
 
+
+
 # Thanks for Visiting! 
 
 ![Alt Text](https://media.giphy.com/media/k4ta29T68xlfi/giphy.gif)
+
+
 
 [Home](https://gwilly.github.io/Ladies-Almanack)
