@@ -1,7 +1,7 @@
 # “For when a Girl falls in Love, with no matter what, should she not be protected in some way, from Hazzard, ever attending that which is illegal?” (March 19)
 
 <p align="center">
-<img src="March.jpg" alt="alt text" width="266" height="399.5">
+<img src="March.jpg" alt="alt text" width="280" height="399.5">
 </p>
 
 At first glance, this quote seems to be referring to the idea that lesbians should be given rights in order to protect themselves from persecution.  It is important to understand, that the speaker of this quote is not specifically stated.  However, we are given the fact that Lady Buck-and-Balk, and Tilly-Tweed-In-Blood enter to the “Temple of the Good Dame Musset” and thus spoke these words.  This temple could represent a place of worship, such as the ancient temples in Greece and Rome that were dedicated to the the Gods and Goddesses of that time. It was a place of worship towards these divine beings. To these ladies, Dame Musset might resemble a very important person, a venerable being that reserves the right to be worshipped by them.  The Temple would be the house that Dame Musset is living in which is supported by the Greek translation of the word Temple which is a dwelling.  Now the next question is, why would these ladies go to Dame Musset to appeal this question?  It could possibly be because they viewed her as a saint, or a savior as such. If Dame Musset is being represented as a powerful being, the ladies may have set out on this journey to appeal to her for guidance, and for assistance.
