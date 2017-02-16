@@ -1,4 +1,4 @@
-# Quote 4
+# August 50
 
 “One (Low Heel ) protesting that women were weak and silly Creatures… (High Head)  that they were strong, gallant, twice as hardy as any Man.” (Barnes 50). 
 
