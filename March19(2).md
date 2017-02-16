@@ -1,4 +1,4 @@
-# Quote 2
+# March 19 
 
 “...sinning in a double and similar Sin; rising unprovided for by Church or Certificate…” (Barnes 19). 
 
