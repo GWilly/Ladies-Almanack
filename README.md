@@ -22,6 +22,6 @@ On this site we will be discussing Djuna Barnes in her work titled Ladies Almana
 
 [Video](https://gwilly.github.io/Ladies-Almanack/Video)
 
-[Annotated Bibliography](https://gwilly.github.io/Ladies-Almanack/Annotated-Bibliography)
+[Annotated Bibliography](https://gwilly.github.io/Ladies-Almanack/Annotated Bibliography)
 
 
